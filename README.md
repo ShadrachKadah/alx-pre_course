@@ -1,1 +1,1 @@
-Is Goos to be in ALX
+Is Good to be in ALX
